@@ -38,8 +38,8 @@ My Profile Intro
 
 ## 📫 Connect with Me
 
-* LinkedIn: (add your link)
-* Email: (your email)
+* LinkedIn: https://www.linkedin.com/in/kamalakkannan-radhakrishnan-896143141/
+* Email: krtech26@gmail.com
 
 ---
 
